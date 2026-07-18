@@ -1,5 +1,4 @@
-# 👨‍💻 UBRUFIH OREVA  
-**AI Engineer | Machine Learning Engineer**
+# **AI Engineer | Machine Learning Engineer**
 
 📧 **Email:** [orevaubrufih@gmail.com](mailto:orevaubrufih@gmail.com)  
 🔗 **LinkedIn:** [bit.ly/3KGarWH](https://bit.ly/3KGarWH)  
