@@ -1,4 +1,4 @@
-# 👨‍💻 UBRUFIH OREVAOGHENE DUMBARI  
+# 👨‍💻 UBRUFIH OREVA  
 **AI Engineer | Machine Learning Engineer**
 
 📧 **Email:** [orevaubrufih@gmail.com](mailto:orevaubrufih@gmail.com)  
