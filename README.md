@@ -1,7 +1,7 @@
 # **AI Engineer | Machine Learning Engineer**
 
 📧 **Email:** [orevaubrufih@gmail.com](mailto:orevaubrufih@gmail.com)  
-🔗 **LinkedIn:** [bit.ly/3KGarWH](https://bit.ly/3KGarWH)  
+🔗 **LinkedIn:** [MyLinkedIn](https://www.linkedin.com/in/orevaubrufih/)  
 🌐 **Portfolio:** Available on request  
 
 ---
